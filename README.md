@@ -4,9 +4,9 @@ Dynamic Onlyfans header solution
 
 ## Contacts
 
-Telegram: [@go0go0fo0go0](https://t.me/go0go0fo0go0) 
+**Tele Contact:** [@sudodaemonnn](https://t.me/sudodaemonnn)
 
-Telegram Channel: [Join Here](https://t.me/+qP9G-_ii_XA1MGIx)
+**Tele Channel:** [Join Here](https://t.me/+qP9G-_ii_XA1MGIx)
 
 🔐 Onlyfans Header Security Reverse "x-bc" "sign" "Time" "Xhash" 🔐
 
